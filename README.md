@@ -1,5 +1,5 @@
 Nama Project:Menghitung Laba Bersih
-Nama Kelompok:Pengusaha Sukses
+Nama Kelompok:Pengusaha Muda
 Anggota:-Jeconia Farica Sitorus (241401108)
         -Kayla Andhara (241401081) 
 https://youtu.be/8Afn4ELTSOg?si=OEdfM9-ztEisxswL
